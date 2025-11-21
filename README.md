@@ -23,7 +23,7 @@ Buscando minha primeira oportunidade como **Desenvolvedor Trainee**.
 
 ## 📫 Contato
 ✉️ axeloliveira85@gmail.com  
-💼 LinkedIn: axel-oliveira-martins-094722187
+💼 LinkedIn: https://www.linkedin.com/in/axel-oliveira-martins-094722187
 
 ---
 
