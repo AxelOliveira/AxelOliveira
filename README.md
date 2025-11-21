@@ -36,7 +36,7 @@ Aqui estão algumas tecnologias que estudo e utilizo nos meus projetos:
 ## 📫 Como me encontrar
 
 - ✉️ **Email:** axeloliveira85@gmail.com 
-- 💼 **LinkedIn:** [https://www.linkedin.com/in/axel-oliveira-martins-094722187]
+- 💼 **LinkedIn:** https://www.linkedin.com/in/axel-oliveira-martins-094722187
 
 ---
 
